@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AdvancedPenguin
-- 👀 I’m interested , , , , and Masayoshi Takanaka 
+- 👀 I’m interested other talking carbon lifeforms and Masayoshi Takanaka 
 - 🌱 I’m currently using Python, C, C#, C++, Rust, and sometimes if your lucky a little bit of java.
 - 💞️ I’m looking to collaborate on anything ig idk
 - 📫 How to reach me: EMAIL: bexjax1cw@mozmail.com   FAX: 0118 999 881 999 119 725 3
